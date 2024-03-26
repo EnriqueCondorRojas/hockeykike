@@ -1,1 +1,1 @@
-# hockeykike
+# Migthy Ducks Hockey League
